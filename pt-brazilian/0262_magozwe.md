@@ -1,7 +1,7 @@
 # Magozwe
 
 ##
-Na atarefada cidade de Nairobi, longe de uma vida despreocupada em casa, vivia um grupo de meninos sem abrigo que vivia um dia de cada vez.
+Na grande cidade de Nairobi, longe de uma vida despreocupada em casa, vivia um grupo de meninos sem abrigo que vivia um dia de cada vez.
 
 Certa manhã, os meninos estavam arrumando as suas esteiras depois de uma noite passada dormindo ao relento e no chão. Para se aquecerem, acenderam uma fogueira com lixo.
 
