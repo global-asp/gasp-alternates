@@ -4,7 +4,7 @@
 Um dia, a mamãe trouxe imensa fruta.
 
 ##
-"Quando podemos comer alguma fruta?," perguntámos."Vamos comer fruta esta noite," disse a mamãe.
+"Quando podemos comer alguma fruta?," perguntámos. "Vamos comer fruta esta noite," disse a mamãe.
 
 ##
 O meu irmão Rahim é ganancioso.
@@ -12,7 +12,7 @@ O meu irmão Rahim é ganancioso.
 Provou a fruta toda e comeu muita fruta.
 
 ##
-"Vejam o que o Rahim fez", gritou o meu irmão mais novo."O Rahim é malandro e egoísta," disse eu.
+"Vejam o que o Rahim fez", gritou o meu irmão mais novo. "O Rahim é malandro e egoísta," disse eu.
 
 ##
 A mamãe ficou zangada com o Rahim.
