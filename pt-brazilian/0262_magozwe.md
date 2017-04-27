@@ -47,7 +47,7 @@ Tomás ouvia as histórias das vidas das pessoas com respeito e paciência e nun
 Alguns meninos começaram a ir à casa amarela e azul ao meio-dia para comer.
 
 ##
-Magozwe estava sentado na calçada folheando o seu livro quando Tomás veio sentar ao seu lado."Sobre o que é que é a história?", indagou Tomás."É sobre um menino que se tornou piloto", respondeu Magozwe."Como se chama o menino?", perguntou Tomás."Não sei, não sei ler", disse Magozwe baixinho.
+Magozwe estava sentado na calçada folheando o seu livro quando Tomás veio sentar ao seu lado. "Sobre o que é que é a história?", indagou Tomás. "É sobre um menino que se tornou piloto", respondeu Magozwe. "Como se chama o menino?", perguntou Tomás. "Não sei, não sei ler", disse Magozwe baixinho.
 
 ##
 Quando se conheceram, Magozwe começou a contar a sua história para Tomás, a história do seu tio e de como o menino fugiu.
@@ -78,7 +78,7 @@ Para além da titi Sissi e do seu marido, três cães, um gato e um bode velho, 
 Quando Magozwe começou a ir à escola, nada foi fácil porque tinha muita matéria atrasada. Às vezes, tinha vontade de desistir, mas depois lembrava-se do piloto e do jogador de futebol das suas histórias. Tal como estes personagens, ele não podia desistir.
 
 ##
-Magozwe estava sentado no jardim da casa do telhado verde lendo um livro para a escola quando Tomás veio se sentar ao seu lado."Que livro está lendo?", perguntou Tomás. "É uma história sobre um menino que se tornou professor", respondeu Magozwe. "Como se chama o menino?", disse Tomás. "Chama-se Magozwe", afirmou Magozwe com um sorriso.
+Magozwe estava sentado no jardim da casa do telhado verde lendo um livro para a escola quando Tomás veio se sentar ao seu lado. "Que livro está lendo?", perguntou Tomás. "É uma história sobre um menino que se tornou professor", respondeu Magozwe. "Como se chama o menino?", disse Tomás. "Chama-se Magozwe", afirmou Magozwe com um sorriso.
 
 ##
 * License: [CC-BY]
