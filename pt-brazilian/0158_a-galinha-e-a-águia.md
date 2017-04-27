@@ -4,10 +4,10 @@
 Era uma vez uma Galinha e uma águia que eram muito amigas. Viviam em paz com todos os outros pássaros. Nenhum conseguia voar.
 
 ##
-Um dia, chegou a fome. A águia tinha que andar muito para encontrar comida e voltava se sentindo muito cansada.“Tem que ter uma forma mais fácil de viajar!”, dizia a águia.
+Um dia, chegou a fome. A águia tinha que andar muito para encontrar comida e voltava se sentindo muito cansada. “Tem que ter uma forma mais fácil de viajar!”, dizia a águia.
 
 ##
-Depois de uma boa noite de sono, a Galinha teve uma ideia brilhante. Começou a recolher as penas que caíam dos outros pássaros.“Vamos costurá-las em cima das nossas penas”, sugeriu. “Talvez fique mais fácil de nos movimentarmos”.
+Depois de uma boa noite de sono, a Galinha teve uma ideia brilhante. Começou a recolher as penas que caíam dos outros pássaros. “Vamos costurá-las em cima das nossas penas”, sugeriu. “Talvez fique mais fácil de nos movimentarmos”.
 
 ##
 A águia era a única de toda a aldeia com uma agulha, e por isso, foi a primeira a começar a costurar.
@@ -28,7 +28,7 @@ Essa tarde, regressou a água. Pediu a agulha para arranjar algumas penas que ti
 A galinha olhou para o armário, procurou no pátio, mas não encontrava a agulha.
 
 ##
-“Me dê um dia”, pediu à águia.“Depois, pode juntar as suas asas e voltar a sair para procurar comida”. “Só te dou mais um dia”, disse a águia. “Se não conseguir encontrar a agulha, terá que me dar um dos teus pintinhos para compensar”.
+“Me dê um dia”, pediu à águia. “Depois, pode juntar as suas asas e voltar a sair para procurar comida”. “Só te dou mais um dia”, disse a águia. “Se não conseguir encontrar a agulha, terá que me dar um dos teus pintinhos para compensar”.
 
 ##
 Quando a águia voltou no dia seguinte, viu a Galinha ciscando na areia, mas ainda não tinha encontrado a agulha.
