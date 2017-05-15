@@ -1,7 +1,7 @@
 # A Galinha e A Centopéia
 
 ##
-A Galinha e a Centopéia eram amigas. Mas eles estavam sempre competindo uma com a outra.
+A Galinha e a Centopéia eram amigas. Mas elas estavam sempre competindo uma com a outra.
 
 Um dia, elas decidiram jogar futebol para ver quem era a melhor jogadora.
 
