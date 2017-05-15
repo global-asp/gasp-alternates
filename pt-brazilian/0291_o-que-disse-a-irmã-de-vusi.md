@@ -16,7 +16,7 @@ Os rapazes lamentaram ter provocado Vusi. "Não podemos lhe ajudar com o bolo, m
 No meio do caminho, encontrou dois homens construindo uma casa. "Podemos usar essa madeira forte?", perguntou um. Mas a madeira não era suficientemente forte para o edifício e quebrou.
 
 ##
-"O que você fez?", gritou Vusi. "Essa madeira era um presente para a minha irmã. Os apanhadores de fruta me deram a madeira porque quebraram o ovo para o bolo. O bolo era para o casamento da minha irmã. Agora, nem ovo, nem bolo, nem presente. O que a minha irmã vai dizer?".
+"O que você fez?", gritou Vusi. "Essa madeira era um presente para a minha irmã. Os apanhadores de fruta me deram a madeira porque quebraram o ovo para o bolo. O bolo era para o casamento da minha irmã. Agora, nem ovo, nem bolo, nem presente. O que a minha irmã vai dizer?"
 
 ##
 Os construtores lamentaram ter partido a madeira. "Não lhe podemos ajudar com o bolo, mas toma esta palha para a sua irmã", disse um. E então Vusi continuou a sua caminhada.
