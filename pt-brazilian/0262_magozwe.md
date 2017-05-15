@@ -72,7 +72,7 @@ Magozwe contou tudo isto para Tomás que, depois de algum tempo, acabou consegui
 ##
 Foi então que Magozwe se mudou para uma casa com um telhado verde, onde partilhava um quarto com outros dois meninos.
 
-Para além da titi Sissi e do seu marido, três cães, um gato e um bode velho, nesta casa viviam ainda dez crianças.
+Para além da Titi Cissy e do seu marido, três cães, um gato e um bode velho, nesta casa viviam ainda dez crianças.
 
 ##
 Quando Magozwe começou a ir à escola, nada foi fácil porque tinha muita matéria atrasada. Às vezes, tinha vontade de desistir, mas depois lembrava-se do piloto e do jogador de futebol das suas histórias. Tal como estes personagens, ele não podia desistir.
