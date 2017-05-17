@@ -12,7 +12,7 @@ A Hipopótama não viu que o Coelho estava lá e por isso pisou acidentalmente n
 ##
 A Hipopótama pediu desculpas para o Coelho, "Sinto muito, meu amigo. Eu não vi você. Por favor me perdoa!"
 Mas o Coelho não ouviu, e gritou para a Hipopótama: "Você fez
-isso de propósito! Um dia, você vai ver! Vai me pagar! "
+isso de propósito! Um dia, você vai ver! Vai me pagar!"
 
 ##
 Então o Coelho foi procurar o Fogo e disse: "Vai, e queima a Hipopótama quando ela sair da água para comer grama. Ela pisou em mim!"
