@@ -1,4 +1,4 @@
-# A Galinha e A Centopéia
+# A Galinha e a Centopéia
 
 ##
 A Galinha e a Centopéia eram amigas. Mas elas estavam sempre competindo uma com a outra.
