@@ -1,4 +1,4 @@
-# Por Que É Que Os Hipopótamos Não Têm Cabelo
+# Por que é que os hipopótamos não têm cabelo
 
 ##
 Um dia, o Coelho estava andando à beira do rio.
