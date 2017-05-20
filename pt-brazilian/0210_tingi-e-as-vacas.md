@@ -1,4 +1,4 @@
-# Tingi e as Vacas
+# Tingi e as vacas
 
 ##
 Tingi vivia com a avó.
