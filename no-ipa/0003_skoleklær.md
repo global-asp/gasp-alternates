@@ -27,6 +27,6 @@ diː ˈpɑseɾ gɔt
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini, Anonymous
+* Illustration: Mlungisi Dlamini, Anonymous, Ingrid Schechter
 * Translation: dohliam
 * Language: no
